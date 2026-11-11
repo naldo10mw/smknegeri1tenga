@@ -1,0 +1,1 @@
+# smknegeri1tenga
